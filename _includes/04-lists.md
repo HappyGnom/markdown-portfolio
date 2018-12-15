@@ -1,4 +1,4 @@
-## A student of BSUIR. a creative person who craves for knowlege and just a fun guy :hand::smile:
+## A student of BSUIR. a creative person who craves for knowlege and just a fun guy :)
 ### My current knowlege :
 - Programming
   - C
