@@ -1,1 +1,1 @@
-_Love **pizza** and **sports** at the same time_ :joy:
+_Love **pizza** and **sports** at the same time_ 
